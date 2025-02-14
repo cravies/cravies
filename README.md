@@ -1,1 +1,1 @@
-- 📖 Read my writing about the impact of AI on society at https://aiforhumans.substack.com/
+- 📖 Writing about tech and other things at https://aiforhumans.substack.com/
